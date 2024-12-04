@@ -1,2 +1,2 @@
-# IELTS-Writing-Sample-1
-This writing collections from IELTS teacher - Udemy
+# IELTS Writing Sample 1
+This writing collection from IELTS teacher - Udemy
